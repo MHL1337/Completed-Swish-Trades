@@ -9,3 +9,4 @@ These are all of my Completed Swish trades! I have screenshots of these trades!
 5. 17 Sets Steam Trading cards - 17 kr - https://steamcommunity.com/profiles/76561198107150356 - Completed
 6. 1 Steam account - 150 kr - https://steamcommunity.com/profiles/76561198312028914 - Completed
 7. M4A4 Desolate Space FT - 85 kr - https://steamcommunity.com/profiles/76561198065737460 - Completed
+8. Bayonet Freehand FN - 1500 kr - http://steamcommunity.com/id/muntha/ - Completed
