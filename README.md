@@ -12,3 +12,6 @@ These are all of my Completed Swish trades! I have screenshots of these trades!
 8. Bayonet Freehand FN - 1500 kr - https://steamcommunity.com/profiles/76561198204516685 - Completed
 9. Animus GP (Rocket league) - 40 kr - http://steamcommunity.com/profiles/76561198115297162/ - completed
 10. Bayonet Doppler FN Phase 4 - 1325 kr - https://steamcommunity.com/profiles/76561198036473846 - Completed
+11. Usp-s Orion MW - 60 kr - https://steamcommunity.com/profiles/76561198171454834 - Completed
+12. Statrack Ak-47 Elite Build - 30 kr - https://steamcommunity.com/profiles/76561198117251232 - Completed
+13. Bayonet Damascus Steel FN - 990 kr - https://steamcommunity.com/profiles/76561198154840516 - Completed
