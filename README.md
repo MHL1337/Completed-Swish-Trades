@@ -15,3 +15,4 @@ These are all of my Completed Swish trades! I have screenshots of these trades!
 11. Usp-s Orion MW - 60 kr - https://steamcommunity.com/profiles/76561198171454834 - Completed
 12. Statrack Ak-47 Elite Build - 30 kr - https://steamcommunity.com/profiles/76561198117251232 - Completed
 13. Bayonet Damascus Steel FN - 990 kr - https://steamcommunity.com/profiles/76561198154840516 - Completed
+14. M9 Bayonet Doppler FN - 1600 kr - https://steamcommunity.com/profiles/76561198012821216 - Completed
