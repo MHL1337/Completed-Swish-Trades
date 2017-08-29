@@ -20,3 +20,5 @@ These are all of my Completed Swish trades! I have screenshots of these trades!
 16. Flip Knife Tiger Tooth FN - 1025 kr - https://steamcommunity.com/profiles/76561198123173011 - Completed
 17. Bayonet Freehand FT - 1025 kr - https://steamcommunity.com/profiles/76561198123173011 - Completed
 18. Karambit vanilla - 1650 kr - https://steamcommunity.com/profiles/76561198036473846 - Completed
+19. Bayonet Stained FT - 600 kr - https://steamcommunity.com/profiles/76561198377067177 - Completed
+20. Ak-47 Redline FT x3 - 150 kr - https://steamcommunity.com/profiles/76561198089601910 - Completed
