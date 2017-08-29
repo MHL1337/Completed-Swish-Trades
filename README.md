@@ -22,3 +22,7 @@ These are all of my Completed Swish trades! I have screenshots of these trades!
 18. Karambit vanilla - 1650 kr - https://steamcommunity.com/profiles/76561198036473846 - Completed
 19. Bayonet Stained FT - 600 kr - https://steamcommunity.com/profiles/76561198377067177 - Completed
 20. Ak-47 Redline FT x3 - 150 kr - https://steamcommunity.com/profiles/76561198089601910 - Completed
+21. Ak-47 Redline FT x2 - 100 kr - https://steamcommunity.com/profiles/76561198241835936 - Completed
+22. M9 Bayonet Doppler FN - 1600 kr - https://steamcommunity.com/profiles/76561198119747686 - Completed
+23. Ak-47 Redline FT x2 - 100 Kr - https://steamcommunity.com/profiles/76561198117251232 - Completed
+24. Falchion Knife Fade FN - 780 kr - https://steamcommunity.com/profiles/76561198167212650 - Completed
