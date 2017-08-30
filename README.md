@@ -26,3 +26,4 @@ These are all of my Completed Swish trades! I have screenshots of these trades!
 22. M9 Bayonet Doppler FN - 1600 kr - https://steamcommunity.com/profiles/76561198119747686 - Completed
 23. Ak-47 Redline FT x2 - 100 Kr - https://steamcommunity.com/profiles/76561198117251232 - Completed
 24. Falchion Knife Fade FN - 780 kr - https://steamcommunity.com/profiles/76561198167212650 - Completed
+25. Bowie Knife Marble Fade FN - 2800 kr - https://steamcommunity.com/profiles/76561198120769609 - Completed
