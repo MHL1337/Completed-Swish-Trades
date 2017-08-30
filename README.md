@@ -28,3 +28,5 @@ These are all of my Completed Swish trades! I have screenshots of these trades!
 24. Falchion Knife Fade FN - 780 kr - https://steamcommunity.com/profiles/76561198167212650 - Completed
 25. Bowie Knife Marble Fade FN - 2800 kr - https://steamcommunity.com/profiles/76561198120769609 - Completed
 26. M9 Tiger Tooth FN - 2800 kr - https://steamcommunity.com/profiles/76561198172751527 - Completed
+27. Ak-47 Redline FT - 100 kr -  https://steamcommunity.com/profiles/76561198093973538 - Completed
+28. Bayonet Marble Fade FN - 1900 kr - https://steamcommunity.com/profiles/76561198117253812 - Completed
