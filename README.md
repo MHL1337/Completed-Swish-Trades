@@ -32,3 +32,5 @@ These are all of my Completed Swish trades! I have screenshots of these trades!
 28. Bayonet Marble Fade FN - 1900 kr - https://steamcommunity.com/profiles/76561198117253812 - Completed
 29. Keys x4 - 80 Kr- https://steamcommunity.com/profiles/76561198241835936 - Completed
 30. Huntsman Knife TigerTooth - 1845 Kr - https://steamcommunity.com/profiles/76561198063336513 - Completed
+31. Karambit Bluesteel MW - 1300 Kr - https://steamcommunity.com/profiles/76561198172751527 - Completed
+32. M9 Bayonet Freehand MW - 1300 Kr https://steamcommunity.com/profiles/76561198172751527 - Completed
